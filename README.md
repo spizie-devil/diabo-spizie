@@ -1,4 +1,4 @@
-# Olá, eu sou o Chefe 👋
+# Olá, eu sou o spizie 👋
 
 🌐 **Web Designer & Desenvolvedor Full Stack** | ⚡ Entusiasta de tecnologia e APKs  
 > "Parte da minha felicidade se baseia na minha criação." 🚀
